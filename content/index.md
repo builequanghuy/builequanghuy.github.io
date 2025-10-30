@@ -1,6 +1,4 @@
 ---
 title: Welcome to Quartz
 ---
-
-This is a blank Quartz installation.
-See the [documentation](https://quartz.jzhao.xyz) for how to get started.
+This is my Mathematics Blog. The main objective is to capture fundamental knowledges and information needed in my major (currently Machine Learning Engineer).
