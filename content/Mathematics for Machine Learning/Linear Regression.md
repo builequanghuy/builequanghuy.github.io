@@ -1,0 +1,2 @@
+A first idea that the book suggest is to maximize the likelihood. That means maximizing the probability that our $y$ falls down to our linear model $X \theta$ by supposing that $y$ follows a Gaussian distribution whose mean is $X \theta$.
+ 
