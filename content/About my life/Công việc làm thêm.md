@@ -1,0 +1,3 @@
+Mình tìm được một công việc làm thêm vào đầu tháng 11/2025 sau nhiều tháng tìm việc. Mình cuốn sushi cho một kiosque ở Carrefour. Chủ quán và mọi người ở đây rất dễ thương và giúp đỡ mình rất nhiều. Công việc nhẹ nhàng và cũng có đồng ra đồng vào cho mình. Công việc ở đây cũng có những bất lợi cho mình. Địa điểm mình làm rất xa (so với trung tâm Paris), và giờ làm việc thì sớm (7h30), dẫn tới việc sáng mình phải dậy 5h để chuẩn bị đi làm.
+![[carrefourlesulis.jpg]]
+Một bức ảnh ngẫu nhiên mà mình chụp lúc bắt đầu làm việc ngày 08/11/2025.
