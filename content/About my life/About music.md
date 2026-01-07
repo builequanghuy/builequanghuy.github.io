@@ -1,0 +1,5 @@
+I'm a guitar player (just for fun, cant call myself a guitarist though). I currnently don't play much guitar like before. My first guitar was bought by my father, a guitar player also. Honestly, what guitar taught me most is about how to listen to music and how to grab emotion from them. Having grown up playing guitar, my english "goût" (sorry about a french word) is mainly guitar band.
+[Ngot band](https://open.spotify.com/intl-fr/artist/0V2DfUrZvBuUReS1LFo5ZI?si=OVcW5AnYR0iZcYMjA7aZug) is my first and most favorite band. Although, they put an end for the band, the main singer remains singing and sharing songs, [Thang](https://open.spotify.com/intl-fr/artist/1oD9fKbb7qQ2nhn9JJC24F?si=CxvQBazgRsmTVjooLV5Cvg).
+Currently, I have enjoyed and quite loved this brand new band, [Giay gap](https://open.spotify.com/intl-fr/artist/39NXoiwWy5aJFeC76TzW9v?si=2O6lcUpDRyuj0ZOTRsFx5w).
+
+Tùng. Mỗi lần nghe nhạc Tùng mình cứ ước cuộc đời mình thật thê thảm, để sống trong bài hát của Tùng.

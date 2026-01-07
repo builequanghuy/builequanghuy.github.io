@@ -1,3 +1,7 @@
 Mình tìm được một công việc làm thêm vào đầu tháng 11/2025 sau nhiều tháng tìm việc. Mình cuốn sushi cho một kiosque ở Carrefour. Chủ quán và mọi người ở đây rất dễ thương và giúp đỡ mình rất nhiều. Công việc nhẹ nhàng và cũng có đồng ra đồng vào cho mình. Công việc ở đây cũng có những bất lợi cho mình. Địa điểm mình làm rất xa (so với trung tâm Paris), và giờ làm việc thì sớm (7h30), dẫn tới việc sáng mình phải dậy 5h để chuẩn bị đi làm.
 ![[carrefourlesulis.jpg]]
 Một bức ảnh ngẫu nhiên mà mình chụp lúc bắt đầu làm việc ngày 08/11/2025.
+
+Đầu tháng 12, mình được nhận vào Chronodrive một chỗ siêu thị gần nhà ở Troyes. Cũng vì thế mà mình nhắn thôi việc ở chỗ sushi. Điều mình tiếc có lẽ là chủ ở đây rất dễ thương và tận tình. Sau khi nghỉ ngang như vậy thì chị chủ gọi cho mình và cũng nói thẳng là mình sống như hạch. Đến giờ mình vẫn còn gì đó trong lòng giống như mình nợ chị.
+
+Làm đến đầu tháng 1 thì mình có một sự cố, một điện thoại mình có chút vấn đề nên báo thức không reo, mình thề không phải là do mình. Thế là mình nghỉ một hôm. Luật ở Pháp thì bất cứ lần nghỉ nào dù đi học hay đi làm cũng phải justifier bằng một cái giấy khám bác sĩ. Trớ trêu thay là đang kì nghỉ lễ đầu năm nên mình chẳng tìm được bác sĩ luôn. Thế là coi như mình bị 1 sẹo. Đến bây giờ mình vẫn không biết công ty có bỏ qua cho mình hay không. Hết tháng 1 là hết kì làm thử, và điều này xảy ra cũng dở khóc dở cười với mình.
